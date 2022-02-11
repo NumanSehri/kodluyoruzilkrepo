@@ -24,3 +24,7 @@ Pull requestler kabul edilir. Büyük değişiklikler için, lütfen önce neyi 
 # License
 
 [MIT] (https://github.com/NumanSehri/kodluyoruzilkrepo/blob/2bbfd8641c3a0f33b676c0f3180fd092549236ae/LICENSE)
+sbgfkshghsoghdf
+dgşfdo-pjoıshjg
+
+dıgfdsğoıigjd
